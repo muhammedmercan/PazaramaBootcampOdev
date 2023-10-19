@@ -1,1 +1,1 @@
-![Assassin's Creed® Origins2023-10-18-14-55-35](https://github.com/muhammedmercan/PazaramaBootcampOdev/assets/58571212/30c17024-3457-4cd2-87c3-39d3c9f6d9bd)
+![Screenshot_1697735087](https://github.com/muhammedmercan/PazaramaBootcampOdev/assets/58571212/ae248200-09a9-4a12-afec-b16d15f9f1e2)
